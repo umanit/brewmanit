@@ -1,1 +1,1 @@
-* __La bigoudène - malt biscuit, sarrasin et caramel au beurre salé
+* __La bigoudène__ - malt biscuit, sarrasin et caramel au beurre salé

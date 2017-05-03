@@ -6,8 +6,8 @@ note : le nom reste à définir
 Quantité | Ingrédient | Caractéristique
 --------:| -----------| ---------------
 6.5kg | Orge malté pale "Marris Otter" | 5.9 EBC
-20 | Houblon Cascade | AA 5.5 - 9% / BA 6 - 7.5%
-100 | Houblon Citra | AA 13.9%
+20 g | Houblon Cascade | AA 5.5 - 9% / BA 6 - 7.5%
+100 g | Houblon Citra | AA 13.9%
 1/2 c.à.c | Irish Moss | -
 1 sachet | Levure Lallemand Nottingham Yeast |
 30L | Eau de source (Volvic)

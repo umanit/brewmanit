@@ -9,8 +9,8 @@ Quantité | Ingrédient | Caractéristique
 20 g | Houblon Cascade | AA 5.5 - 9% / BA 6 - 7.5%
 100 g | Houblon Citra | AA 13.9%
 1/2 c.à.c | Irish Moss | -
-1 sachet | Levure Lallemand Nottingham Yeast |
-30L | Eau de source (Volvic)
+1 sachet | Levure "Nottingham Yeast" | Lallemand (marque)
+30L | Eau de source | Volvic
 
 ## Étapes
 

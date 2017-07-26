@@ -5,3 +5,5 @@
 * __Thyme thraveler__ - Blanche au thym
 * __Anonymous__ - Grosse brune à base de chataignes et miel pour la noyelle ❤️
 * __Hop bomb__ - Grosse IPA extrêmement amère
+* __Tabarnak__ - Bière brune au sirop d'érable (Il faudrait qu'elle soit bien forte, histoire qu'on dise "Tabarnak !" quand on la boit :p)
+* __La queue de castor__ Bière blanche sucrée (La queue de castor étant un biscuit qui vient du canada avec plein de trucs dessus trop cool :D)

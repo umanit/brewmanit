@@ -5,3 +5,4 @@
 * __Thyme thraveler__ - Blanche au thym
 * __Anonymous__ - Grosse brune à base de chataignes et miel pour la noyelle ❤️
 * __Hop bomb__ - Grosse IPA extrêmement amère
+* __Éduquée à la Corse__ - Bière au gland et à la chataigne
